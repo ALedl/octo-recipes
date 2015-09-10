@@ -18,6 +18,8 @@ categories: main
 3/4-1 cup heavy whipping cream
 salt and freshly ground pepper to taste
 
+Please don't add cheese!
+
 
 ## Directions
 
